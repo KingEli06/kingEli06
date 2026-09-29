@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **DevOps**
 
-- 📫 How to reach me **eli_ncho@outlook.com**
+- 📫 How to reach me **veteran_e@outlook.com**
 
 - 📄 Know about my experiences [https://bold.pro/my/eli-ncho-250909200434](https://bold.pro/my/eli-ncho-250909200434)
 
