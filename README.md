@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://bold.pro/my/eli-ncho-250909200434](https://bold.pro/my/eli-ncho-250909200434)
 
-- ⚡ Fun fact **When I’m not working on DevOps projects, you can probably find me out fishing.**
+- ⚡ Fun fact **If my birthday falls on a weekend, I’m off the grid—you can find me out on the water trying to outsmart fish (and usually losing)..**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
